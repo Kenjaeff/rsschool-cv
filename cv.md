@@ -31,6 +31,5 @@ I am confident that I have the skills and knowledge to become a successful progr
 ### Languages:
 
 - English \- Intermediate/Upper-intermediate
-
 - Russian \- Native
 - Uzbek \- Basic
